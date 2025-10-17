@@ -130,7 +130,7 @@ Either way, we're all still standing around that Little League field, and little
 Timmy's nuclear room is still probably a mess - but at least the divorced
 parents finally found something new to fight about at the next game.
 
-<img width="717" height="4974" alt="Homepage" src="https://github.com/user-attachments/assets/5a386691-5c0f-4a3b-b006-ef083319c01a" />
+<img width="300" height="4974" alt="Homepage" src="https://github.com/user-attachments/assets/5a386691-5c0f-4a3b-b006-ef083319c01a" />
 
 
 
