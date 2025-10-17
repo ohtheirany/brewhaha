@@ -1,5 +1,8 @@
-# brewhaha
-The daily satirical news outlet that keeps you informed, makes you laugh, gives you perspective, and keeps you sane
+
+<img width="1511" height="416" alt="Screenshot 2025-10-17 at 5 44 09 PM" src="https://github.com/user-attachments/assets/39eb6914-5777-4238-bc3f-8710ded15e04" />
+
+# BREWHAHA
+The daily satirical news outlet that keeps you informed, makes you laugh, gives you perspective, and KEEPS YOU SANE
 
 brouhaha
 | noun | a noisy and overexcited reaction or response to something.
@@ -126,3 +129,8 @@ effectiveness would be more entertaining than the original strikes.
 Either way, we're all still standing around that Little League field, and little
 Timmy's nuclear room is still probably a mess - but at least the divorced
 parents finally found something new to fight about at the next game.
+
+<img width="717" height="4974" alt="Homepage" src="https://github.com/user-attachments/assets/5a386691-5c0f-4a3b-b006-ef083319c01a" />
+
+
+
