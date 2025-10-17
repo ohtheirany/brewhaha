@@ -45,10 +45,14 @@ IN HISTORY," while early US intel reports suggest the strikes "did not
 completely destroy the country's nuclear program" and only set it back by
 months. It's like nuclear program got a really bad haircut - annoying, but
 it'll grow back .
+
+
 Background: The strikes targeted Iran's nuclear facilities at Fordow,
 Natanz, and Isfahan using B-2 bombers. Now everyone's playing America's
 favorite post-military-action parlor game: "How Demolished Is
 Demolished?
+
+
 How It Unfolds: Trump posts in ALL CAPS from the NATO summit declaring
 "ONE OF THE MOST SUCCESSFUL MILITARY STRIKES IN HISTORY " and that
 " THE NUCLEAR SITES IN IRAN ARE COMPLETELY DESTROYED!" CNN drops
@@ -61,6 +65,8 @@ Iranian MPs disputing Trump's obliteration claims. MSNBC jumps in to
 highlight the contradiction between Trump's victory lap and the
 intelligence assessment , because nothing says responsible journalism like
 making sure everyone knows when the president might be overselling.
+
+
 The left-leaning media collective (CNN, MSNBC, NBC) immediately pounced
 on this like sharks smelling blood, desperate to prove Trump didn' t
 achieve the total victory he claimed. CNN's exclusive intel assessment and
@@ -71,6 +77,8 @@ effective than advertised. They're treating satellite imagery like it's gospel
 while questioning Trump's victory declarations - which is totally fair
 journalism, except for the part where they seem genuinely disappointed
 that Iranian nuclear facilities might have been hit harder than they hoped.
+
+
 The right-leaning media (Fox News) is treating this like America just
 invented freedom again, celebrating the "successful strikes" and
 highlighting the military's brilliant "strategic deception and decoys."
@@ -81,6 +89,7 @@ obliteration. Because apparently when your guy says nuclear sites are
 assessments from intelligence agencies. They're the political equivalent of
 insisting the home run was a grand slam even when the scoreboard shows
 otherwise.
+
 Both sides are doing their predictable dance around the same campfire of
 confirmation bias. The left wants Trump to fail so badly they're practically
 rooting for Iranian nuclear capabilities, while the right wants Trump to
@@ -93,17 +102,20 @@ sandcastle, and now we're all standing around like proud parents at a
 Little League game arguing about whether it was a home run or a ground-
 rule double. But here's where it gets interesting - we're all waiting for the
 next pitch.
+
 If Iran rebuilds those facilities in six months like the intel suggests? The
 left will dust off their " told you so" victory dance while the right pivots to
 "we bought crucial time for diplomacy." If satellite images later reveal
 more devastation than initially thought? CNN will quietly update their
 assessments while Fox News takes a victory lap around the entire media
 landscape.
+
 But what if Iran decides to go full speed ahead on nuclear development
 elsewhere? Suddenly everyone's calculus changes - the left starts debating
 whether we should have hit harder, the right starts demanding we finish
 the job, and both sides discover they're now arguing for the exact opposite
 positions they held last week .
+
 The wildcard nobody's talking about : what if this actually works as
 intended - Iran backs down, regional tensions cool , and Trump gets his
 foreign policy win? The left will have to grudgingly admit the strikes were
